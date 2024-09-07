@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me... sebuka224@gmail.com
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I don't know what i'm doing😄
 
 <!---
 NwosisiEbuka24/NwosisiEbuka24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
